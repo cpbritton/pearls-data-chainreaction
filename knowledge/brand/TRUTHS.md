@@ -1,2 +1,0 @@
-# Brand Truths
-- [Stub]
